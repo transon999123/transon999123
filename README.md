@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm **transon999123/transon999123**, you can call me "transon", "son", "ha" or "nguyenha"
+I'm **transon999123**, you can call me "transon", "son", "ha" or "nguyenha"
 
 - 🔭 I’m currently studying at HCMUT-VNU-HCM
 - 🌱 I’m currently learning Computer Science with the specialization field of Cybersecurity
