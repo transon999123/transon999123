@@ -7,6 +7,6 @@ I'm **transon999123/transon999123**, you can call me "transon", "son", "ha" or "
 - 👯 I’m looking to collaborate with my friend at uni and maybe at work
 - 🤔 I’m looking for help with anything in cybersecurity 
 - 📫 How to reach me: son.tran2312981n48@hcmut.edu.vn
-- 😄 Pronouns: they/them, she/he, non-binary (lol i'm woke asf)
+- 😄 Pronouns: she/he/they (lol i'm woke asf)
 - ⚡ Fun fact: i'm dumb but eager to learn
 
